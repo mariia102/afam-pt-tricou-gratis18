@@ -48,4 +48,8 @@ Tara tara vrem ostasi
 
 master
  master
+ dvdvdvedve
+ hss bchdnd avsfsgwr mjdkd
+
 njscj cj s bs snd
+master
