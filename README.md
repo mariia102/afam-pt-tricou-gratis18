@@ -76,3 +76,18 @@ master
 
 njscj cj s bs snd
 master
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# sa mai scriu ceva si aici, sall :)
