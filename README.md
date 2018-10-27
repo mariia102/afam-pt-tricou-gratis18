@@ -48,3 +48,4 @@ Tara tara vrem ostasi
 
 master
  master
+ hss bchdnd avsfsgwr mjdkd
