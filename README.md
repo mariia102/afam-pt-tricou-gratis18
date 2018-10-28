@@ -115,7 +115,7 @@ master
 
 i like it raw 
 
-
+a fost o data ca niciodata o mama 
 
 
 
